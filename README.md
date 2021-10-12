@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ScorpioArapsss
+- 👋 Hi, I’m Soham Charkrabarty
 - 👀 I’m interested in ice hockey, reading and playing video games
 - 📚 I’m currently learning more about grade 12 math at home
 - 🎮 My favourite games is Metal Gear Solid
